@@ -10,4 +10,4 @@
 
 GitHub: JosePerdomo1
 LinkedIn: Jose Perdomo
-Email: [your.email@example.com]
+Email: [japerdomo2309@gmail.com]
